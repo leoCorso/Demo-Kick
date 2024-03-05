@@ -1,1 +1,1 @@
-Windows executable download: https://www.mediafire.com/file/aaz3bhuosjbrzeb/Demo_Kick.exe/file
+Windows executable download: https://www.mediafire.com/file/u8nnj0vjm039ab6/Demo_Kick.exe/file
